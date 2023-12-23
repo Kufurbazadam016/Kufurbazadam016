@@ -1,5 +1,5 @@
-
-
+pls kıtsune fruit 
+pls leopard fruit 
 👋 Hi, I’m @Kufurbazadam016
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
